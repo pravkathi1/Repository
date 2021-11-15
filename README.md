@@ -1,5 +1,4 @@
 # Summer
-https://www.goodhousekeeping.com/life/g25250143/winter-quotes/
 [Winter images and quotes](https://www.goodhousekeeping.com/life/g25250143/winter-quotes/)
 
 ![GitHub Logo](/images/logo.png)
