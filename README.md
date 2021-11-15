@@ -1,5 +1,5 @@
-# Winter
-[Winter images and quotes](https://www.goodhousekeeping.com/life/g25250143/winter-quotes/)
+[Winter](https://www.goodhousekeeping.com/life/g25250143/winter-quotes/)
+
 
 Winter means:
 1. Snow
